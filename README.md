@@ -4,7 +4,6 @@
 
 ✘ https://appllees.carrd.co 
 
-═══════════════════════════════════════
 
 ✘ c + h, sometimes w2i if im in menu.
 
